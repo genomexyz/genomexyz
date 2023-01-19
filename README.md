@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://genomexyz.medium.com/](https://genomexyz.medium.com/)
 
-- ⚡ Fun fact **a psychologist tell me I am not fit with this job or any other math based job**
+- ⚡ Fun fact **a psychologist tell me I am not fit with this job**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
